@@ -8,6 +8,9 @@ Meu nome é **Yasmin**
 
   ### Você entra em contato comigo
 
-
-
   00001130236493SP@al.educacao.sp.gov.br
+
+@balardinii
+
+![](https://media1.tenor.com/m/TM0wRVBJ3tkAAAAC/powerpuff-powerpuff-girls.gif)
+
